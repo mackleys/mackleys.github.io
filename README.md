@@ -1,2 +1,0 @@
-# mackleys.github.io
-folio
